@@ -18,6 +18,7 @@ https://www.lesswrong.com/
 https://jasont.co/ennui/
 https://world.hey.com/dhh
 
+
 https://noidea.dog/glue -- glue work
 https://blog.dbsmasher.com/2022/05/24/not-my-job.html
 https://www.youtube.com/watch?v=dcV2PaMTAJ4
